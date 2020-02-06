@@ -7,7 +7,7 @@ salondesy1684@gmail.com
 ---------------------------------------------- ---- ---------------
 buy with paypal
 ------------------------------------------------------------------------------------------------------------------
-Update 09/17/2019
+Update Feb 06, 2020
 ------------------------------------------------------------------------------------------------------------------
 Dragon Shadow Warriors Last Stickman Fight
 https://apkpure.com/dragon-shadow-warriors-last-stickman-fight-legend/com.aw.dragon.fight.shadow.battle.legend
